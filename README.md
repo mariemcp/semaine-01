@@ -7,7 +7,7 @@ Je suis arrivée dans l'Indre en 1987, pour suivre mon mari pour raisons profess
 ## Expériences Professionnelles
 En 1987, j'ai travaillé comme employée de saisie dans un cabinet comptable près d'Arpajon (91).
 En 1988, j'ai occupé un poste d'aide-comptable pendant 4 ans à la SAHLM Habitat 2036 à Châteauroux, qui est devenue depuis SCALIS.
-Mon mari a créé son entreprise de maçonnerie dans laquelle j'étais la secrétaire comptable où je m'occupais de toute la comptabilité et de l'administration.
+En 2004, mon mari a créé son entreprise de maçonnerie dans laquelle j'étais la secrétaire comptable où je m'occupais de toute la comptabilité et de l'administration.
 J'ai même créé son site internet que l'on peut consulter en cliquant sur le lien [denis perin](http://maconneriedenisperin.pagesperso-orange.fr) !
 Après une période d'un an au chômage, j'ai été pendant 2 ans AVS (auxiliaire de vie scolaire) auprès d'enfants handicapés.
 
